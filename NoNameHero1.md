@@ -10,5 +10,3 @@ man, Luis, said. "I know!" Mack screamed. Their backs hit the dead end of the al
   Their screams pierced through the night sky. Birds flew away in fear. [insert hero 1's name] wipes off the blood on his blade. "Another stain. I gotta wash these off someday." 
 [insert hero 1's name] muttered. His watch rang. "Calling all heros in the vicinity, we need your help", the audio played. Shrugging, [insert hero 1's name] walked away from the 2
 headless bodies  in the alley.
-
-And the enemy dies.
