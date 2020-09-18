@@ -7,6 +7,6 @@ man, Luis, said. "I know!" Mack screamed. Their backs hit the dead end of the al
   Closer.
   Blinks.
   Blade raised.
-  Their screams pierced through the night sky. Birds flew away in fear. [insert hero 1's name] wipes off the blood on his blade. "Another stain. I gotta wash these off someday." 
-[insert hero 1's name] muttered. His watch rang. "Calling all heros in the vicinity, we need your help", the audio played. Shrugging, [insert hero 1's name] walked away from the 2
+  Their screams pierced through the night sky. Birds flew away in fear. The Vigilante wipes off the blood on his blade. "Another stain. I gotta wash these off someday." 
+he muttered. His watch rang. "Calling all heros in the vicinity, we need your help", the audio played. Shrugging, the Vigilante walked away from the 2
 headless bodies  in the alley.
