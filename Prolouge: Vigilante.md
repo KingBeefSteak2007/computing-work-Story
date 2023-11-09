@@ -1,5 +1,5 @@
   Night.
-  Gunshots filled the usually quiet neighbourhood of Famino. Two burly men in masks, firing aimlessly at an enemy they know they can't defeat. "He's closing on us Mack!" the first 
+  Gunshots filled the usually quiet neighbourhood. Two burly men in masks, firing aimlessly at an enemy they know they can't defeat. "He's closing on us Mack!" the first 
 man, Luis, said. "I know!" Mack screamed. Their backs hit the dead end of the alley. A red light flashes.
   Darkness.
   He comes closer.
